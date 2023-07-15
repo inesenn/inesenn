@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @inesenn
 - 👀 I’m interested in boobs
 - 🌱 I’m currently learning german
-- 💞️ I’m looking to collaborate on onlyfan
+- 💞️ I’m looking to collaborate on onlyfans
 - 📫 How to reach me (505) 503-4455
 
 <!---
